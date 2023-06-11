@@ -1,0 +1,160 @@
+#Worthwhile Dubs
+
+This is a work in progress. Please PM /u/notathrowaway75 if you have any suggestions or corrections.
+
+##Best Dubs
+
+These 10 dubs are top-tier and are recommended for everyone, even people who don't normally watch dubs.
+
+* [Cowboy Bebop](http://myanimelist.net/anime/1/)
+* Dragon Ball, Dragon Ball Kai and Dragon Ball Super*
+* [FLCL](http://myanimelist.net/anime/227/)
+* [Fullmetal Alchemist](http://myanimelist.net/anime/121/) + [Brotherhood](http://myanimelist.net/anime/5114/)
+* [Ghost Stories](https://myanimelist.net/anime/1281/)
+* [Panty and Stocking](http://myanimelist.net/anime/8795/)
+* [Space☆Dandy](http://myanimelist.net/anime/20057/)
+* [Steins;Gate](http://myanimelist.net/anime/9253/)
+* [The Melancholy of Haruhi Suzumiya](http://myanimelist.net/anime/849/)
+* [Yu Yu Hakusho](https://myanimelist.net/anime/392/)
+
+---
+
+Note: Since almost all modern dubs are good, instead of just listing all dubs released in the past 6 years and the ones getting released, the exceptional ones that stand out will be highlighted. 2013 is a mostly arbitrary year. If you have a better idea of a cutoff point for a "modern dub," let me know. If you have any suggestions on dubs to be added, please make a case for each one (good cast, writing, etc) instead of just sending me a list.
+
+Since voice casts very rarely change with sequels, assume the dub for the sequel is also recommended. i.e If I recommend the dub for Code Geass R1, the dub for R2 is also recommended. Same goes for the above. The exception is of course when the cast changes for the sequel, like JoJo.
+
+These recommendations are specifically for the *dub.* The quality of the show overall, as well as the Japanese voice acting, is irrelevant.
+
+Finally, these are all english dubs. If there are any dubs in your language that you feel belong, let me know.
+
+---
+
+##Worthwhile dubs released Pre-2013
+
+* [A Certain Magical Index](https://myanimelist.net/anime/8937/)
+* [B Gata H Kei](http://myanimelist.net/anime/7817/)
+* [Baccano!](http://myanimelist.net/anime/2251/)
+* [Beck](http://myanimelist.net/anime/57/)
+* [Ben-To](http://myanimelist.net/anime/10396/)
+* [Berserk \(1997\)](https://myanimelist.net/anime/33/)
+* [Black Lagoon](http://myanimelist.net/anime/889/)
+* [Code Ge*ass*](http://myanimelist.net/anime/1575/)
+* [D-Frag!](http://myanimelist.net/anime/20031/)
+* [Darker Than Black](http://myanimelist.net/anime/2025/)
+* [Death Note](http://myanimelist.net/anime/1535/)
+* [Durarara!!](http://myanimelist.net/anime/6746/)
+* [Ergo Proxy](http://myanimelist.net/anime/790/)
+* [Eureka Seven](http://myanimelist.net/anime/237/)
+* [Fate/stay night](https://myanimelist.net/anime/356/)
+* [Full Metal Panic!](https://myanimelist.net/anime/71/)
+* [Ghost in the Shell: Stand Alone Complex](http://myanimelist.net/anime/467/)
+* [Haibane Renmei](http://myanimelist.net/anime/387/)
+* [Hellsing](http://myanimelist.net/anime/270/)
+* [Hellsing Ultimate](http://myanimelist.net/anime/777/)
+* [Jin-Rou](http://myanimelist.net/anime/570/)
+* [Jormungand](http://myanimelist.net/anime/12413/) 
+* [Kino’s Journey](http://myanimelist.net/anime/486/)
+* [Last Exile](http://myanimelist.net/anime/97/)
+* [Lucky☆Star](http://myanimelist.net/anime/1887/)
+* [Madoka Magica](https://myanimelist.net/anime/9756/)
+* [Monster](http://myanimelist.net/anime/19/)
+* [Mushishi](http://myanimelist.net/anime/457/)
+* [Neon Genesis Evangelion](https://myanimelist.net/anime/30/) (Original dub)
+* [One Piece](https://myanimelist.net/anime/21/)
+* [Outlaw Star](https://myanimelist.net/anime/400/)
+* [Paprika](http://myanimelist.net/anime/1943/)
+* [Paranoia Agent](http://myanimelist.net/anime/323/)
+* [Perfect Blue](http://myanimelist.net/anime/437/)
+* [Planetes](http://myanimelist.net/anime/329/)
+* [Nana](http://myanimelist.net/anime/877/)
+* [Samurai Champloo](http://myanimelist.net/anime/205/)
+* [School Rumble](http://myanimelist.net/anime/24/)
+* [Shiki](http://myanimelist.net/anime/7724/)
+* [Soul Eater](http://myanimelist.net/anime/3588/)
+* [Spice and Wolf](http://myanimelist.net/anime/2966/)
+* [Tengen Toppa Gurren Lagann](http://myanimelist.net/anime/2001/)
+* [Texhnolyze](http://myanimelist.net/anime/26/)
+* [The Big O](http://myanimelist.net/anime/567/)
+* [Tekkon Kinkreet](http://myanimelist.net/anime/2154/)
+* [Tiger and Bunny](http://myanimelist.net/anime/9941/)
+* [Toradora!](https://myanimelist.net/anime/4224/)
+* [Welcome to the NHK](http://myanimelist.net/anime/1210/)
+* [Wolf's Rain](http://myanimelist.net/anime/202/)
+
+---
+
+##Exceptional Dubs released 2013-Present
+
+* [Aggretsuko](https://myanimelist.net/anime/36904/)
+* [Ajin](http://myanimelist.net/anime/31580/)
+* [Anohana](https://myanimelist.net/anime/9989/)
+* [Attack on Titan](https://myanimelist.net/anime/16498/)
+* [Black Clover](https://myanimelist.net/anime/34572/)
+* [Blood Blockade Battlefront](https://myanimelist.net/anime/24439/)
+* [Chihayafuru](https://myanimelist.net/anime/10800/)
+* [Chio's School Road](https://myanimelist.net/anime/35821/)
+* [Coppelion](http://myanimelist.net/anime/9479/)
+* [Dagashi Kashi](http://myanimelist.net/anime/31636/)
+* [Darling in the FranXX](https://myanimelist.net/anime/35849/)
+* [Devilman: Crybaby](https://myanimelist.net/anime/35120/)
+* [Double Decker! Doug & Kirill](https://myanimelist.net/anime/37496/)
+* [Dr. Stone](https://myanimelist.net/anime/38691/)
+* [Erased](https://myanimelist.net/anime/31043/)
+* [Fate/stay night: Unlimited Blade Works](https://myanimelist.net/anime/22297/)
+* [Fate/Zero](http://myanimelist.net/anime/10087/)
+* [Fire Force](https://myanimelist.net/anime/38671/)
+* [FLCL Progressive](https://myanimelist.net/anime/33010/)
+* [FLCL Alternative](https://myanimelist.net/anime/35842/)
+* [Food Wars](https://myanimelist.net/anime/28171/)
+* [Free!](http://myanimelist.net/anime/18507/)
+* [Gamers!](https://myanimelist.net/anime/34280/)
+* [Golden Kamuy](https://myanimelist.net/anime/36028/)
+* [Good Luck Girl!](http://myanimelist.net/anime/13535/)
+* [High School DxD](http://myanimelist.net/anime/11617/)
+* [How Heavy Are the Dumbbells You Lift?](https://myanimelist.net/anime/39026/)
+* [Hunter x Hunter \(2011\)](https://myanimelist.net/anime/11061/)
+* [Jojo’s Bizarre Adventure Part 1+2](http://myanimelist.net/anime/14719/)
+* [Jojo’s Bizarre Adventure Part 3](https://myanimelist.net/anime/20899/)
+* [Jojo’s Bizarre Adventure Part 4](https://myanimelist.net/anime/31933/)
+* [K-On!](https://myanimelist.net/anime/5680/)
+* [Kill la Kill](https://myanimelist.net/anime/18679/)
+* [Laughing Under the Clouds](http://myanimelist.net/anime/21743/)
+* [Little Witch Academia](https://myanimelist.net/anime/14349/)
+* [Lupin III: Part IV](https://myanimelist.net/anime/27947/)
+* [Lupin The Third: The Woman Called Fujiko Mine](http://myanimelist.net/anime/13203/)
+* [Made in Abyss](https://myanimelist.net/anime/34599/)
+* [March Comes in Like a Lion](https://myanimelist.net/anime/31646/)
+* [Megalo Box](https://myanimelist.net/anime/36563/)
+* [Mix: Meisei Story](https://myanimelist.net/anime/38098/)
+* [Mob Psycho 100](https://myanimelist.net/anime/32182/)
+* [Mobile Suit Gundam: Iron-Blooded Orphans](https://myanimelist.net/anime/31251/)
+* [My First Girlfriend is a Gal](https://myanimelist.net/anime/34403/)
+* [My Hero Academia](https://myanimelist.net/anime/31964/)
+* [My Roommate is a Cat](https://myanimelist.net/anime/38145/)
+* [Neon Genesis Evangelion](https://myanimelist.net/anime/30/) (Netflix dub)
+* [New Game!](https://myanimelist.net/anime/31953/)
+* [Nichijou](https://myanimelist.net/anime/10165/Nichijou?q=)
+* [Ninja Slayer](http://myanimelist.net/anime/23605/)
+* [Nobunagun](http://myanimelist.net/anime/19855/)
+* [One Punch Man](https://myanimelist.net/anime/30276/)
+* [Overlord](https://myanimelist.net/anime/29803/)
+* [Redline](http://myanimelist.net/anime/6675/)
+* [ReLIFE](https://myanimelist.net/anime/30015/)
+* [Sarazanmai](https://myanimelist.net/anime/37426/)
+* [SSSS.Gridman](https://myanimelist.net/anime/35847/)
+* [Psycho Pass](http://myanimelist.net/anime/13601/)
+* [Re:Zero](https://myanimelist.net/anime/31240/)
+* [Shimoneta](https://myanimelist.net/anime/29786/)
+* [Snow White With Red Hair](http://myanimelist.net/anime/30123/)
+* [Sword Art Online](https://myanimelist.net/anime/11757/)
+* [Teasing Master Takagi-san](https://myanimelist.net/anime/35860/)
+* [That Time I Got Reincarnated As A Slime](https://myanimelist.net/anime/37430/)
+* [The Devil is a Part-Timer!](http://myanimelist.net/anime/15809/)
+* [The Disastrous Life of Saiki K.](https://myanimelist.net/anime/33255/)
+* [The Quintessential Quintuplets](https://myanimelist.net/anime/38101/)
+* [Tokyo Ghoul](http://myanimelist.net/anime/22319/)
+* [Tsurezure Children](https://myanimelist.net/anime/34902/)
+* [Wolf Children](http://myanimelist.net/anime/12355/)
+* [Your Lie in April](https://myanimelist.net/anime/23273/)
+
+\* The Dragon Ball franchise has a very popular and widely recommended dub, but there are many localization changes made to many of its entries. You can find a list of changes [here](https://dragonball.fandom.com/wiki/Funimation_dub).
